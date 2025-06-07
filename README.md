@@ -1,3 +1,3 @@
 welcome to futuer tech
 
-this  contain the work at my instite
+this  contain the work at my institute
